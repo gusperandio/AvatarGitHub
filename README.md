@@ -1,4 +1,4 @@
-# Avatar GitHub
+# Avatar GitHub 🐙🐱
 
  **Escolha um avatar para deixar seu perfil bem mais bonito**
  
